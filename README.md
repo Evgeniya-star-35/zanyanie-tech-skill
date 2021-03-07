@@ -1,0 +1,1 @@
+# zanyanie-tech-skill
